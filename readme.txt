@@ -1,1 +1,2 @@
 czytej to
+czytej bardziej
